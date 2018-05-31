@@ -1,1 +1,0 @@
-# vadimsorokin.github.io
